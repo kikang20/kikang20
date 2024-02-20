@@ -5,7 +5,7 @@
 
 - 👨‍💻 All of my projects are available at [https://kikang20.github.io/portfolio/](https://kikang20.github.io/portfolio/)
 
-- 📫 How to reach me **kikang20@yahoo.com**
+- 📫 How to reach me **kikang2010@gmail.com**
 
 - 📄 Know about my experiences [https://docs.google.com/document/d/1NmRsSoudVEmTqY_0XavmbmK3wdhOgzaZS-48i3O4U-M/](https://docs.google.com/document/d/1NmRsSoudVEmTqY_0XavmbmK3wdhOgzaZS-48i3O4U-M/)
 
